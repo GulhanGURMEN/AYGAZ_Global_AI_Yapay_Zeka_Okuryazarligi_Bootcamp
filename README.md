@@ -1,0 +1,2 @@
+# AYGAZ_Global_AI_Yapay_Zeka_Okuryazarligi_Bootcamp
+AYGAZ_Global_AI_Yapay_Zeka_Okuryazarligi_Bootcamp
